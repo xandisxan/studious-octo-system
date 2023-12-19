@@ -1,0 +1,1 @@
+During the making of the the movie "Fight Club," actor Brad Pitt chipped his tooth. However, he did not get his tooth capped until after the movie was done filming as he thought it would look better chipped for his character
