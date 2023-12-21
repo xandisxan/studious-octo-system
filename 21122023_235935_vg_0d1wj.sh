@@ -1,0 +1,1 @@
+Emus cannot walk backwards
