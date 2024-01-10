@@ -1,0 +1,1 @@
+Castaways Travel, a Houston-area travel agency, offers an all-nude flight to Cancun Mexico. Once the plane reaches cruising altitude, you are allowed to take off all your clothes and roam about the cabin
